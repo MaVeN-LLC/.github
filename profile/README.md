@@ -5,3 +5,9 @@
 Our Mission is to create a lot of Apps that can help **YOU**.
 ## We're hiring!
 Contact us > contact@mavenllc.cf - We need @Roblox, and Apps Developers!
+## Our Social Media!
+YouTube - <a href="youtube.com/@mavenllc">@MaVeNLLC<a/>
+
+ReplIt - <a href="replit.com/@mavenllc">@MaVeNLLC<a/>
+
+Website - <a href="mavenllc.cf">MaVeN LLC Official Site<a/>
